@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👾 About Me:
 French student passionate about computer science and electronics, studying at CERI in Avignon 💾📖
 
 
