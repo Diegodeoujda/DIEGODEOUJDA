@@ -1,5 +1,5 @@
 # 💫 About Me:
-French student passionate about computer science and electronics, studying at CERI in Avignon
+French student passionate about computer science and electronics, studying at CERI in Avignon 💾📖
 
 
 ## 🌐 Socials:
